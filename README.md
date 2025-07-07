@@ -11,4 +11,4 @@
 
 在这些平台上，日本AV免费影片更新频繁，满足用户对最新资源的需求。影片根据演员、类型等分类，用户可以按兴趣筛选内容。每个影片页面详细列出了演员、时长、清晰度等信息，帮助用户做出明智选择。平台提供高清播放选项，确保观影流畅，并能根据网络环境自动调整视频质量。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/hehe20250707/hehe15 ）</span>
